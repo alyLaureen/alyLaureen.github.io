@@ -1,6 +1,7 @@
 Ahlyssa Laureen Bautista
 
 > *Enhypen*
+
 | **Border:Day 1** | **Border:Carnival** | **Dimmension:Dilemma** | **Dimmension:Answer** | **Manifesto:Day 1** |
 | ----------- | ----------- |
 | 10 months | Not for sale | Upside Dreamin' | Blessed-cursed | ParadoXXX Invaison |
