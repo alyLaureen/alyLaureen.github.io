@@ -1,6 +1,6 @@
-> *Enhypen*
+> *ENHYPEN*
 
-<img src="https://i.pinimg.com/564x/4f/d0/41/4fd0414a258cd896eb1faca9020e775a.jpg" width="100" height="100">
+![image](https://i.pinimg.com/564x/4f/d0/41/4fd0414a258cd896eb1faca9020e775a.jpg)
 
 - watch their latest mv !
 <iframe width="560" height="315" src="https://www.youtube.com/embed/HOciAVeq_HU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" allowfullscreen></iframe>
