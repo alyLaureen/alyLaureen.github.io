@@ -1,5 +1,5 @@
 > *Enhypen*
-<iframe src="https://assets.pinterest.com/ext/embed.html?id=945615252987495315" height="364" width="345" frameborder="0" scrolling="no" ></iframe>
+![Uploading 세라 • ᴇɴ-⁷ on Twitter.jpg…]
 - watch their latest mv !
 <iframe width="560" height="315" src="https://www.youtube.com/embed/HOciAVeq_HU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" allowfullscreen></iframe>
 - my spotify playlist <33
